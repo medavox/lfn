@@ -1,9 +1,13 @@
-filo - wire
+apendis - appendix
 bloco - section
-numero de serie - serial number
-desativi - defuse
-desarma - disarm
-modulo - module
-esploda - explode
 colpa - strike
+desarma - disarm
+detona - detonate
+desativi - defuse
+esploda - explode
+filo - wire
+lado - side
+modulo - module
+numero de serie - serial number
+retrocontador - countdown timer
 talia - cut
