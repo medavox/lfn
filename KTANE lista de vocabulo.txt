@@ -1,0 +1,9 @@
+filo - wire
+bloco - section
+numero de serie - serial number
+desativi - defuse
+desarma - disarm
+modulo - module
+esploda - explode
+colpa - strike
+talia - cut
