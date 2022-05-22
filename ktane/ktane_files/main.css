@@ -40,14 +40,10 @@ textarea {
 
 @font-face {
 	font-family: 'Special Elite';
+	font-display: swap;
 	src: local('Special Elite'), 
 		 local('Special Elite Regular'),
-		 url('../fonts/SpecialElite-webfont.eot'),
-		 url('../fonts/SpecialElite-webfont.eot?#iefix') format('embedded-opentype'),
-		 url('../fonts/SpecialElite-webfont.woff2') format('woff2'),
-		 url('../fonts/SpecialElite-webfont.woff') format('woff'),
-		 url('../fonts/SpecialElite-webfont.ttf') format('truetype'),
-		 url('../fonts/SpecialElite-webfont.svg#special_eliteregular') format('svg');
+		 url('/SpecialElite-webfont.woff') format('woff'),
 	font-weight: normal;
 	font-style: normal;
 }
