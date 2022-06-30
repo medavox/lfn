@@ -1,3 +1,3 @@
-Mea traduidas de Elefen.
+Mea traduis de Elefen.
 
 My Elefen translations.
