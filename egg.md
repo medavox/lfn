@@ -88,7 +88,7 @@ point to doing that between each life.”
 
 “How many times have I been reincarnated, then?”
 
-“Oh lots. Lots and lots. An in to lots of different lives.” I said.
+“Oh lots. Lots and lots. And into lots of different lives.” I said.
 “This time around, you’ll be a Chinese peasant girl in 540 AD.”
 
 “Wait, what?” You stammered. “You’re sending me back in time?”
