@@ -52,27 +52,35 @@ Plu como un ensenior de scola gramatica ca la Omnipotente.
 “No ajita tu,” Me ia dise. “Los va es bon. Tua xices va recorda tu como 
 perfeta en cada modo. Los no ia ave tempo a deveni despetosa de tu.
 Tua sposa va plora a estra, ma va es lejerida secreta. 
-Es justa, tua your sposia en curso de ia fali. Si lo es cualce consola, 
-el ia senti cuplable multe per senti lejerida.”
+En justa, tua sposia en curso de ia fali. Si lo es cualce consola, 
+el ia senti culpable multe per senti lejerida.”
 
-“O,” tu ia dise. Donce cual va aveni a pos? Esce me vade a la sielo o enferno o simil?”
+“O,” tu ia dise. Donce cual va aveni a pos? Esce me vade a la sielo o la enferno o simil?”
 
 “No la un e no la otra,” me ia dise. “Tu va reincarne.”
 
 “A,” tu ia dise. “Alora la Indus ia dise coreta,”
 
 “All religions are right in their own way,” I said. “Walk with me.”
+“Tota la relijios es coreta en sua modo propre,” me ia dise. “Pasea con me.”
 
 You followed along as we strode through the void. “Where are we going?”
+Tu ia segue en cuando nos ia gami tra la vacua. “Do nos vade?”
 
 “Nowhere in particular,” I said. “It’s just nice to walk while we talk.”
+“A no loca spesifada,” me ia dise. “Lo es mera bon a pasea en cuando nos parla.”
 
 “So what’s the point, then?” You asked. “When I get reborn, I’ll just be
 a blank slate, right? A baby. So all my experiences and everything I did
 in this life won’t matter.”
+“Donce cual es an la razona?” tu ia demanda. “Cuando me es renaseda, me va recorda no cosa, si?
+ Un bebe. Alora tota mea esperias e tota la cosas cual me ia fa en esta vive no va importa.”
 
 “Not so!” I said. “You have within you all the knowledge and experiences
 of all your past lives. You just don’t remember them right now.”
+"Acel no es la caso!” me ia dise. “Tu ave en tu tota la sabe e esperias de tota tua vives pasada.
+Tu mera no recorda los aora mesma.”
+
 
 I stopped walking and took you by the shoulders. “Your soul is more
 magnificent, beautiful, and gigantic than you can possibly imagine. A
@@ -81,12 +89,27 @@ sticking your finger in a glass of water to see if it’s hot or cold. You
 put a tiny part of yourself into the vessel, and when you bring it back
 out, you’ve gained all the experiences it had.
 
+Me ia para pasea e ia prende tu par la spalas. 
+“Tua spirito ed plu merveliosa, bela e jigante ca tu pote posible imajina.
+Un mente umana pote sola conteni un frato pico de cual tu es.
+Lo es como pone tua dito en un vitro de acua per serti egal si lo es calda o fria.
+Tu pone un parte pico de tu en la vaso, e cuando tu reprende estra lo,
+tu gania tota la esperias cual lo ia ave.
+
 “You’ve been in a human for the last 48 years, so you haven’t stretched
 out yet and felt the rest of your immense consciousness. If we hung out
 here for long enough, you’d start remembering everything. But there’s no
 point to doing that between each life.”
 
+“Tu ia es un umana de la 48 anios pasada, 
+donce tu no es ancora plen estendeda e 
+ia senti la resta de tua consensia enorme.
+Si nos ta pigri asi per un tempo sufisinte,
+tu ta comensa recorda tota cosas.
+Ma on ave no razonas a fa lo entre cada vive.”
+
 “How many times have I been reincarnated, then?”
+“Cuantia de veses me ia es alora renaseda?”
 
 “Oh lots. Lots and lots. An in to lots of different lives.” I said.
 “This time around, you’ll be a Chinese peasant girl in 540 AD.”
