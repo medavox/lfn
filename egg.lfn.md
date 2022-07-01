@@ -41,7 +41,9 @@ Tu ia vide a sirca. On ia ave noncosia. Sola tu e me.
 
 “Esce los va es oce?”
 
-“Acel es cual me gusta a vide,” me ia dise. “Tu veni de mori e tua conserna xef es per tua familia. Acel es vera cualia bon.”
+“Acel es cual me gusta a vide,” me ia dise. 
+
+“Tu veni de mori e tua conserna xef es per tua familia. Acel es vera cualia bon.”
 
 Tu ia regarda me con fasina. Per tu, me no ia aspeta como Dio. 
 Me ia aspeta mera como alga om. O posible un fem. 
@@ -54,7 +56,7 @@ Tua sposa va plora a estra, ma va es lejerida secreta.
 En justa, tua sposia ia es en curso de fali. Si lo es cualce consola, 
 el ia senti culpable multe per senti lejerida.”
 
-“O,” tu ia dise. Donce cual va aveni a pos? Esce me vade a la sielo o la enferno o simil?”
+“O,” tu ia dise. “Donce cual va aveni a pos? Esce me vade a la sielo o la enferno o simil?”
 
 “No la un e no la otra,” me ia dise. “Tu va reincarne.”
 
@@ -66,11 +68,14 @@ Tu ia segue me en cuando nos ia gami tra la vacua. “Do nos vade?”
 
 “No loca spesifada,” me ia dise. “Lo es mera bon a pasea en cuando nos parla.”
 
-“Donce cual es vera la razona?” tu ia demanda. “Cuando me es renaseda, me va recorda no cosa, si? Un bebe. Alora tota mea esperias e tota la cosas cual me ia fa en esta vive no va importa.”
+“Donce cual es vera la razona?” tu ia demanda. 
+
+“Cuando me es renaseda, me va recorda no cosa, si? Un bebe. Alora tota mea esperias e tota la cosas cual me ia fa en esta vive no va importa.”
 
 "No vera!” me ia dise. “Tu ave en tu tota de la sabe e esperias de tota tua vives pasada. Tu mera no recorda los aora mesma.”
 
 Me ia para pasea e ia prende tu par la spalas. 
+
 “Tua spirito ed plu merveliosa, bela e jigante ca tu pote posible imajina.
 Un mente umana pote sola conteni un frato pico de cual tu es.
 Lo es como pone tua dito en un vitro de acua per serti egal si lo es calda o fria. Tu pone un parte pico de tu en la vaso, e cuando tu reprende estra lo, tu gania tota la esperias cual lo ia ave.
@@ -82,7 +87,7 @@ Si nos ta pigri asi per un tempo sufisinte,
 tu ta comensa recorda tota cosas.
 Ma on ave no razonas a fa lo entre cada vive.”
 
-“Cuantia de veses me ia es alora renaseda?”
+“Cuantia de veses me ia es alora reincarneda?”
 
 “O, multe. Multe e multe. E en multe de vives diferente.” Me ia dise.
 "Esta ves, tu va es un xica campanian Jonguo en 540EC.”
@@ -90,88 +95,92 @@ Ma on ave no razonas a fa lo entre cada vive.”
 “Para, cual?” Tu ia balbuta. “Tu reenvia me en la tempo?”
 
 “Well, I guess technically. Time, as you know it, only exists in your
-universe. Things are different where I come from.”
+universe. Things are different where I come from.
 
-“Where you come from?” You said.
+“Bon, me suposa tecnical. Tempo, como tu conose lo, sola esiste en tua universo.
+ Cosas es diferente de do me veni.”
 
-“Oh sure,” I explained “I come from somewhere. Somewhere else. And there
-are others like me. I know you’ll want to know what it’s like there, but
-honestly you wouldn’t understand.”
+“De do tu veni?” Tu ia dise.
 
-“Oh,” you said, a little let down. “But wait. If I get reincarnated to
-other places in time, I could have interacted with myself at some
-point.”
+“O si,” Me ia esplica. “Me veni de alga loca. Un otra loca. E on ave otras como me.
+E me sabe ce tu va ole sabe lo es como ala, ma en onestia tu ta no comprende.”
 
-“Sure. Happens all the time. And with both lives only aware of their own
-lifespan you don’t even know it’s happening.”
+“O,” tu ia dise, un pico deludeda. “Ma para. Si me es reincarneda a alga otra locas en la tempo,
+Me ta ia interata con me a alga ves.”
 
-“So what’s the point of it all?”
+“Serta. Lo aveni tota la tempo. 
+E con ambos vives sola consensa se sua propre vives,
+tu no sabe an ce lo aveni.”
 
-“Seriously?” I asked. “Seriously? You’re asking me for the meaning of
-life? Isn’t that a little stereotypical?”
+"Donce cual es a razona per tota de lo?”
 
-“Well it’s a reasonable question,” you persisted.
+“Vera?” Me ia demanda. “Vera? Tu demanda me per la sinifia de vive? Lo es un pico steretipal, no?”
 
-I looked you in the eye. “The meaning of life, the reason I made this
-whole universe, is for you to mature.”
+“Bon lo es un demanda razonable,” tu ia persiste.
 
-“You mean mankind? You want us to mature?”
+Me regarda tu en la oio.
 
-“No, just you. I made this whole universe for you. With each new life
-you grow and mature and become a larger and greater intellect.”
+“La sinifia de vive, la razona me ia fa esta universo intera, es per ce tu maturi.”
 
-“Just me? What about everyone else?”
+“Tu vole dise la umanas? Tu vole ce nos maturi?”
 
-“There is no one else,” I said. “In this universe, there’s just you and
-me.”
+“No, sola tu. Me ia fa esta universo intera per tu. 
+Con cada vive nova, tu crese e maturi e deveni un inteleto plu grande e plu bon.”
 
-You stared blankly at me. “But all the people on earth…”
+“Sola me, Como de cadun otra?”
 
-“All you. Different incarnations of you.”
+“On ave no cadun otra,” Me ia dise. “En esta unierso, on ave sola tu e me..”
 
-“Wait. I’m *everyone*!?”
+Tu regarda instensa a me, sin comprende. “Ma tota la persones sur la Tera…”
 
-“Now you’re getting it,” I said, with a congratulatory slap on the back.
+“Tota tu. Incarnes diferente de tu.”
 
-“I’m every human being who ever lived?”
+“Para. Me es *cadun*!?”
 
-“Or who will ever live, yes.”
+“Aora tu comprende,” me ia dise, con un colpeta lodante sur la dorso.
 
-“I’m Abraham Lincoln?”
+“Me es cada umana ci ia vive de sempre?”
 
-“And you’re John Wilkes Booth, too,” I added.
+“O ci va vive de sempre, si.”
 
-“I’m Hitler?” You said, appalled.
+“Me es Abraham Lincoln?”
 
-“And you’re the millions he killed.”
+“E tu es John Wilkes Booth, ance,” Me ia ajunta.
 
-“I’m Jesus?”
+“I’m Hitler?” Tu ia dise, xocada.
 
-“And you’re everyone who followed him.”
+“E tu es la miliones ci el ia mata.”
 
-You fell silent.
+“Me es Jesus?”
 
-“Every time you victimized someone,” I said, “you were victimizing
-yourself. Every act of kindness you’ve done, you’ve done to yourself.
-Every happy and sad moment ever experienced by any human was, or will
-be, experienced by you.”
+“E tu es cadun ci ia segue el.”
 
-You thought for a long time.
+Tu ia deveni silente.
 
-“Why?” You asked me. “Why do all this?”
+“Cada ves tu ia vitimi algun.” me ia dise, “Tu ia vitimi tu mesma. 
+Cada bon ata cual tu ia fa, tu ia fa a tu mesma.
+Cada momento feli e triste cual cualce umana ia esperia de sempre ia es, 
+o va es, esperia par tu.”
+
+Tu pensa tra longa.
+
+“Perce?” Tu ia demanda me. “Perce fa tota esta?”
 
 “Because someday, you will become like me. Because that’s what you are.
 You’re one of my kind. You’re my child.”
 
-“Whoa,” you said, incredulous. “You mean I’m a god?”
+“Car a alga dia, tu va deveni como me. Car acel es cual tu es.
+Tu es un de mea. Tu es mea enfantes.”
 
-“No. Not yet. You’re a fetus. You’re still growing. Once you’ve lived
-every human life throughout all time, you will have grown enough to be
-born.”
+“Uau,” tu ia dise, noncredente. “Tu vole dise ce me es un dio?”
 
-“So the whole universe,” you said, “it’s just…”
+“No. Ancora no. Tu es un feto. Tu crese ancora. 
+Cuando tu ia vive cad viva umana tra la tempo tota, 
+tu ia crese sufisinte per nase.”
+
+“Donce la universo intera,” tu ia dise, “lo es mera…”
 
 “An egg.” I answered. “Now it’s time for you to move on to your next
-life.”
+“Un ovo.” me ia responde. “Aora lo es tempo ce tu move a tua viva seguente.”
 
-And I sent you on your way.
+E me ia envia tu a ante tua via.

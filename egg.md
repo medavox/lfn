@@ -179,9 +179,3 @@ born.”
 life.”
 
 And I sent you on your way.
-
- 
-
- 
-
-[]()[![](The%20Egg_files/anchor.jpg)](#anc2)
