@@ -25,7 +25,7 @@ E alora tu ia encontra me.
 
 “Si. Ma no es triste. Cadun mori,” me ia dise.
 
-Tu ia vide a sirca. On ia ave noncosia. Sola tu e me. 
+Tu ia regarda a sirca. On ia ave noncosia. Sola tu e me. 
 “Cual es esta loca?” Tu ia demanda. 
 “Esce esta es la ultravive?”
 
@@ -41,7 +41,7 @@ Tu ia vide a sirca. On ia ave noncosia. Sola tu e me.
 
 “Esce los va es oce?”
 
-“Acel es cual me gusta a vide,” me ia dise. 
+“Acel es cual me gusta vide,” me ia dise. 
 
 “Tu veni de mori e tua conserna xef es per tua familia. Acel es vera cualia bon.”
 
@@ -51,7 +51,7 @@ Alga figur neblin de autoria, cisa.
 Plu como un ensenior de scola gramatica ca la Omnipotente.
 
 “No ajita,” Me ia dise. “Los va es bon. Tua xices va recorda tu como 
-perfeta en cada modo. Los no ia ave tempo a deveni despetosa de tu.
+perfeta en cada modo. Los no ia ave tempo per deveni despetosa de tu.
 Tua sposa va plora a estra, ma va es lejerida secreta. 
 En justa, tua sposia ia es en curso de fali. Si lo es cualce consola, 
 el ia senti culpable multe per senti lejerida.”
@@ -76,7 +76,7 @@ Tu ia segue me en cuando nos ia gami tra la vacua. “Do nos vade?”
 
 Me ia para pasea e ia prende tu par la spalas. 
 
-“Tua spirito ed plu merveliosa, bela e jigante ca tu pote posible imajina.
+“Tua spirito es plu merveliosa, bela e jigante ca tu pote posible imajina.
 Un mente umana pote sola conteni un frato pico de cual tu es.
 Lo es como pone tua dito en un vitro de acua per serti egal si lo es calda o fria. Tu pone un parte pico de tu en la vaso, e cuando tu reprende estra lo, tu gania tota la esperias cual lo ia ave.
 
@@ -87,15 +87,12 @@ Si nos ta pigri asi per un tempo sufisinte,
 tu ta comensa recorda tota cosas.
 Ma on ave no razonas a fa lo entre cada vive.”
 
-“Cuantia de veses me ia es alora reincarneda?”
+“Cuanto veses me ia es alora reincarneda?”
 
 “O, multe. Multe e multe. E en multe de vives diferente.” Me ia dise.
 "Esta ves, tu va es un xica campanian Jonguo en 540EC.”
 
 “Para, cual?” Tu ia balbuta. “Tu reenvia me en la tempo?”
-
-“Well, I guess technically. Time, as you know it, only exists in your
-universe. Things are different where I come from.
 
 “Bon, me suposa tecnical. Tempo, como tu conose lo, sola esiste en tua universo.
  Cosas es diferente de do me veni.”
@@ -103,10 +100,12 @@ universe. Things are different where I come from.
 “De do tu veni?” Tu ia dise.
 
 “O si,” Me ia esplica. “Me veni de alga loca. Un otra loca. E on ave otras como me.
-E me sabe ce tu va ole sabe lo es como ala, ma en onestia tu ta no comprende.”
+Me sabe ce tu va vole sabe como lo es ala, ma en onestia tu ta no comprende.”
 
-“O,” tu ia dise, un pico deludeda. “Ma para. Si me es reincarneda a alga otra locas en la tempo,
-Me ta ia interata con me a alga ves.”
+“O,” tu ia dise, un pico deludeda. 
+
+“Ma para. Si me es reincarneda a alga otra locas en la tempo, 
+me ta ia interata con me a alga ves.”
 
 “Serta. Lo aveni tota la tempo. 
 E con ambos vives sola consensa se sua propre vives,
@@ -114,11 +113,11 @@ tu no sabe an ce lo aveni.”
 
 "Donce cual es a razona per tota de lo?”
 
-“Vera?” Me ia demanda. “Vera? Tu demanda me per la sinifia de vive? Lo es un pico steretipal, no?”
+“Vera?” Me ia demanda. “Vera? Tu demanda me per la sinifia de vive? Lo es un pico stereotipal, no?”
 
 “Bon lo es un demanda razonable,” tu ia persiste.
 
-Me regarda tu en la oio.
+Me ia regarda tu en la oios.
 
 “La sinifia de vive, la razona me ia fa esta universo intera, es per ce tu maturi.”
 
@@ -147,7 +146,7 @@ Tu regarda instensa a me, sin comprende. “Ma tota la persones sur la Tera…�
 
 “E tu es John Wilkes Booth, ance,” Me ia ajunta.
 
-“I’m Hitler?” Tu ia dise, xocada.
+“Me es Hitler?” Tu ia dise, xocada.
 
 “E tu es la miliones ci el ia mata.”
 
@@ -166,20 +165,17 @@ Tu pensa tra longa.
 
 “Perce?” Tu ia demanda me. “Perce fa tota esta?”
 
-“Because someday, you will become like me. Because that’s what you are.
-You’re one of my kind. You’re my child.”
-
 “Car a alga dia, tu va deveni como me. Car acel es cual tu es.
 Tu es un de mea. Tu es mea enfantes.”
 
 “Uau,” tu ia dise, noncredente. “Tu vole dise ce me es un dio?”
 
 “No. Ancora no. Tu es un feto. Tu crese ancora. 
-Cuando tu ia vive cad viva umana tra la tempo tota, 
+Cuando tu ia vive cada vive umana tra la tempo tota, 
 tu ia crese sufisinte per nase.”
 
 “Donce la universo intera,” tu ia dise, “lo es mera…”
 
-“Un ovo.” me ia responde. “Aora lo es tempo ce tu move a tua viva seguente.”
+“Un ovo.” me ia responde. “Aora lo es tempo ce tu move a tua vive seguente.”
 
 E me ia envia tu a ante tua via.
