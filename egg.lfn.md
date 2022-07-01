@@ -13,7 +13,7 @@ lo ia es plu bon en esta modo, fida me.
 
 E alora tu ia encontra me.
 
-“Cual… cual ia aveni?” Tu ia demanda. “Do es me?”
+“Cual… cual ia aveni?” Tu ia demanda. “Do me es?”
 
 “Tu ia mori,” me ia dise, pratical. No razona a parla nondireta.
 
