@@ -180,7 +180,6 @@ tu ia crese sufisinte per nase.”
 
 “Donce la universo intera,” tu ia dise, “lo es mera…”
 
-“An egg.” I answered. “Now it’s time for you to move on to your next
 “Un ovo.” me ia responde. “Aora lo es tempo ce tu move a tua viva seguente.”
 
 E me ia envia tu a ante tua via.
