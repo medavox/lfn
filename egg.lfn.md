@@ -78,7 +78,7 @@ Me ia para pasea e ia prende tu par la spalas.
 
 “Tua spirito es plu merveliosa, bela e jigante ca tu pote posible imajina.
 Un mente umana pote sola conteni un frato pico de cual tu es.
-Lo es como pone tua dito en un vitro de acua per serti egal si lo es calda o fria. Tu pone un parte pico de tu en la vaso, e cuando tu reprende estra lo, tu gania tota la esperias cual lo ia ave.
+Lo es como pone tua dito en un vitro de acua per serti si lo es calda o fria. Tu pone un parte pico de tu en la vaso, e cuando tu reprende estra lo, tu gania tota la esperias cual lo ia ave.
 
 “Tu ia es en un umana de la 48 anios pasada, 
 donce tu no es ancora plen estendeda e 
@@ -90,7 +90,7 @@ Ma on ave no razonas a fa lo entre cada vive.”
 “Cuanto veses me ia es alora reincarneda?”
 
 “O, multe. Multe e multe. E en multe de vives diferente.” Me ia dise.
-"Esta ves, tu va es un xica campanian Jonguo en 540EC.”
+"Esta ves, tu va es un xica campanian jonguo en 540EC.”
 
 “Para, cual?” Tu ia balbuta. “Tu reenvia me en la tempo?”
 
@@ -156,9 +156,9 @@ Tu regarda instensa a me, sin comprende. “Ma tota la persones sur la Tera…�
 
 Tu ia deveni silente.
 
-“Cada ves tu ia vitimi algun.” me ia dise, “Tu ia vitimi tu mesma. 
+“Cada ves cuando tu ia vitimi algun.” me ia dise, “Tu ia vitimi tu mesma. 
 Cada bon ata cual tu ia fa, tu ia fa a tu mesma.
-Cada momento feli e triste cual cualce umana ia esperia de sempre ia es, 
+Cada momento felis e triste cual cualce umana ia esperia de sempre ia es, 
 o va es, esperia par tu.”
 
 Tu pensa tra longa.
