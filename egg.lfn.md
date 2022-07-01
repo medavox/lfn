@@ -37,7 +37,7 @@ Tu ia regarda a sirca. On ia ave noncosia. Sola tu e me.
 
 “Mea enfantes… mea sposa,” tu ia dise.
 
-“Como de los?”
+“Cual sur los?”
 
 “Esce los va es oce?”
 
@@ -126,7 +126,7 @@ Me ia regarda tu en la oios.
 “No, sola tu. Me ia fa esta universo intera per tu. 
 Con cada vive nova, tu crese e maturi e deveni un inteleto plu grande e plu bon.”
 
-“Sola me, Como de cadun otra?”
+“Sola me? Cual sur cadun otra?”
 
 “On ave no cadun otra,” Me ia dise. “En esta unierso, on ave sola tu e me..”
 
