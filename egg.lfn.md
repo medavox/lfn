@@ -8,10 +8,10 @@ Tu ia viaja a casa cuando tu ia mori.
 Lo ia es un colide de auto. No notable spesial, ma fatal an tal. 
 Tu ia lasa un sposa e du enfantes. Lo ia es un mori sin dole.
 La paramedicistes ia fa la plu bon cual los pote a salva
-tu, ma sin susede. Tua corpo ia es tan fratida completa ce 
-lo ia es plu bon en esta modo, fida me.
+tu, ma sin susede. Tua corpo ia es tan fratida completa, ce 
+lo ia es plu bon como esta, fida me.
 
-E alora tu ia encontra me.
+E acel ia es cuando tu ia encontra me.
 
 “Cual… cual ia aveni?” Tu ia demanda. “Do me es?”
 
@@ -107,13 +107,15 @@ Me sabe ce tu va vole sabe como lo es ala, ma en onestia tu ta no comprende.”
 “Ma para. Si me es reincarneda a alga otra locas en la tempo, 
 me ta ia interata con me a alga ves.”
 
-“Serta. Lo aveni tota la tempo. 
+“Serta. Lo aveni frecuente. 
 E con ambos vives sola consensa se sua propre vives,
 tu no sabe an ce lo aveni.”
 
-"Donce cual es a razona per tota de lo?”
+"Donce cual es la razona per tota de lo?”
 
-“Vera?” Me ia demanda. “Vera? Tu demanda me per la sinifia de vive? Lo es un pico stereotipal, no?”
+“Vera?” Me ia demanda. 
+
+“Vera? Tu demanda me per la sinifia de vive? Lo es un pico stereotipal, no?”
 
 “Bon lo es un demanda razonable,” tu ia persiste.
 
@@ -128,7 +130,7 @@ Con cada vive nova, tu crese e maturi e deveni un inteleto plu grande e plu bon.
 
 “Sola me? Cual sur cadun otra?”
 
-“On ave no cadun otra,” Me ia dise. “En esta unierso, on ave sola tu e me..”
+“On ave no cadun otra,” Me ia dise. “En esta universo, on ave sola tu e me..”
 
 Tu regarda instensa a me, sin comprende. “Ma tota la persones sur la Tera…”
 
