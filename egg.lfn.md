@@ -1,6 +1,6 @@
 **La Ovo**
 
-Par: Andy Weir
+Scriveda par Andy Weir en 2009. Traduida en Elefen par medavox en 2022.
 
 
 Tu ia viaja a casa cuando tu ia mori.
