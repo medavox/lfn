@@ -131,9 +131,7 @@ me ta ia interata con me a alga ves.”
 
 “Serta. Lo aveni frecuente. 
 
-E con ambos vives sola consensa se sua propre vives,
-
-tu no sabe an ce lo aveni.”
+E car ambos vives es sola consensa de se mesma, tu no sabe an ce lo aveni.”
 
 "Donce cual es la razona per tota de lo?”
 
@@ -141,7 +139,7 @@ tu no sabe an ce lo aveni.”
 
 “De vera? Tu demanda me per la sinifia de vive? Lo es un pico stereotipal, no?”
 
-“Bon lo es un demanda razonable,” tu persiste.
+“Bon, lo es un demanda razonable,” tu persiste.
 
 Me regarda tu en la oios.
 
@@ -155,7 +153,7 @@ Con cada vive nova, tu crese e maturi e deveni un inteleto plu grande e plu bon.
 
 “Sola me? Cual sur cadun otra?”
 
-“On ave no cadun otra,” Me dise. “En esta universo, on ave sola tu e me..”
+“On ave no cadun otra,” Me dise. “En esta universo, on ave sola tu e me.”
 
 Tu regarda intensa a me, sin comprende. “Ma tota la persones sur la Tera…”
 
@@ -187,9 +185,9 @@ Tu deveni silente.
 
 Cada bon ata cual tu ia fa, tu ia fa a tu mesma.
 
-Cada momento felis e triste cual cualce umana ia esperia de sempre ia es, 
+Cada momento felis e triste ce cualce umana ia esperia de sempre ia es, 
 
-o va es, esperia par tu.”
+o va es, esperiada par tu.”
 
 Tu pensa tra longa.
 
@@ -197,7 +195,7 @@ Tu pensa tra longa.
 
 “Car a alga dia, tu va deveni como me. Car acel es cual tu es.
 
-Tu es un de mea. Tu es mea enfantes.”
+Tu es un de mea. Tu es mea enfante.”
 
 “Uau,” tu dise, noncredente. “Tu vole dise ce me es un dio?”
 
